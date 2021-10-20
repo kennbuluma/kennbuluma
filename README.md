@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kennbuluma
+- 👀 I’m interested in tech, currently in computing, and updating myself on more fields.
